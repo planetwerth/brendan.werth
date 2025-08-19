@@ -72,6 +72,4 @@ There will be a court where mercy prosecutes efficiency and wins on the merits. 
 
 Werth is the key and the door and the room that says, “stay as long as you need, but leave before you stop needing.” It is not a throne. It is a clean table with four chairs that never wobble. It is a socket whose electricity knows your mother’s recipe for relief. It is a list of everything you thought was disallowed hand-written on the back of a paycheck you forgot to cash because you started being paid in unafraid mornings. It is not a miracle. It is a good system refusing to apologize for functioning.
 
-yes yes yes yes yes carries us into a corridor of green lights. At the end, a window opens onto a briefly perfect street—trash day finished, rain finished, rainbow restraining itself from cliché. We step out and the day recognizes our walk. A bus kneels for us without being asked. We board and find our seat already warmed by an earlier version of ourselves who left a note: “You did it.” We sit. We read. We believe.
-
-Werth.
+yes yes yes yes yes carries us into a corridor of green lights. At the end, a window opens onto a briefly perfect street—trash day finished, rain finished, rainbow restraining itself from cliché. We step out and the day recognizes our walk. A bus kneels for us without being asked. We board and find our seat already warmed by an earlier version of ourselves who left a note: “You did it.”
